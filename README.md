@@ -1,5 +1,5 @@
 
-
+![welcome-cover](https://github.com/user-attachments/assets/8634a493-4070-4996-82a6-c30cf9bcbe6e)
 
 ### Hi journeyer 👋
 
